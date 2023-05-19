@@ -1,1 +1,7 @@
 # BRAINTUMOURCLASSIFICATION
+
+
+https://github.com/SURYAPRAKASHKALYANAM/BRAINTUMOURCLASSIFICATION/assets/115471106/19d36135-ee6b-42e1-afde-f1952a9b2286
+
+video link : https://clipchamp.com/watch/YQZwL0gMgqY
+
